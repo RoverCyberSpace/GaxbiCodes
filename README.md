@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GaxbiCodes
+- 👋 Hi, I’m AnKuSh 
 - 👀 I’m interested in Coding, Singing, Reading Books, Playing Guitar
 - 🌱 I’m currently learning Artificial Intelligence
 - 💞️ I’m looking to collaborate on Instagram
